@@ -4,4 +4,5 @@ Welcome to my Profile! before interacting please know that im mostly busy so C+H
 I'm on PT EVERYDAY! So feel free to come up to me and chat!
 
 I go by She/Her/They/Them and He/Him!
-Also Note: I got copied 8 times so DONT YOU DARE COPY MY SKINS! DNC!
+
+Also Note: I got copied 8 times now so DONT YOU DARE COPY MY SKINS!
