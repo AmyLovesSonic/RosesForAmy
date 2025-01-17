@@ -2,8 +2,8 @@
 
 WAVES!! Hiya! :D
 
-Welcome to my Profile! before interacting please know that im mostly busy so C+H is welcomed! I'm a Huge Amy Kin (and a half Sonic Kin Giggles) Note: if you are a Pedo, Homophile, Racist, Sexist Etc. PLEASE DNI WITH ME! I'm mostly a huge Sonamy Shipper but i ship others too! (i respect other people's ships as well!) i mostly play roblox so feel free to add me anytime you want to play with me! 🌹
-I'm on PT EVERYDAY! So feel free to come up to me and chat!
+Welcome to my Profile! before interacting please know that im mostly busy so C+H is welcomed! I'm a Huge Amy Kin (and a half Sonic Kin Giggles) Note: if you are a Pedo, Homophile, Racist, Sexist Etc. PLEASE DNI WITH ME! I'm a HUGE Sonamy Shipper but i ship others too! (i respect other people's ships as well! But most people hate the ships (mostly taiream, sonamy etc.) but thats ok! everyone has their opinions!) i mostly play roblox so feel free to add me anytime you want to play Sonic TD with me! 🌹
+I'm on PT EVERYDAY! Dont be afraid to come up and conversate with me! I LOVE nice people hehe!
 
 I go by She/Her/They/Them and He/Him!
 
@@ -18,6 +18,6 @@ Giggles anyways... feel free to follow me! i dont bite <3
 
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/28ac9110-d791-4533-9710-60aac0e77cc7/dfxpj4z-4783e991-3b3b-4fdf-ad84-a0c28f11fa84.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzI4YWM5MTEwLWQ3OTEtNDUzMy05NzEwLTYwYWFjMGU3N2NjN1wvZGZ4cGo0ei00NzgzZTk5MS0zYjNiLTRmZGYtYWQ4NC1hMGMyOGYxMWZhODQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.P26yvMol6CVJEz1gO63-YcNsv7H5Vod3KeyCBt35OFI)
 
-I'm just a silly and a chill gal giggles! 
+I'm just a silly little gal! 
 
 thanks for reading!
