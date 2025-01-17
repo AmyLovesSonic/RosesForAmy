@@ -3,7 +3,7 @@
 WAVES!! Hiya! :D
 
 Welcome to my Profile! before interacting please know that im mostly busy so C+H is welcomed! I'm a Huge Amy Kin (and a half Sonic Kin Giggles) Note: if you are a Pedo, Homophile, Racist, Sexist Etc. PLEASE DNI WITH ME! I'm a HUGE Sonamy Shipper but i ship others too! (i respect other people's ships as well! But most people hate the ships (mostly taiream, sonamy etc.) but thats ok! everyone has their opinions!) i mostly play roblox so feel free to add me anytime you want to play Sonic TD with me! 🌹
-I'm on PT EVERYDAY! Dont be afraid to come up and conversate with me! I LOVE nice people hehe! (any bad people who annoy me/act rude to me WILL be hidden and blocked so watch out! <3)
+I'm on PT EVERYDAY! Dont be afraid to come up and conversate with me! I LOVE nice people hehe! (any bad people who annoy me/act rude to me WILL be hidden and blocked so watch out! <3 including random friend requests WILL be ignored as well! i want to get to know people more before we even become friends/close friends lol and having the same interests as well if not then thats ok!)
 
 I go by She/Her/They/Them and He/Him!
 
