@@ -4,6 +4,10 @@ https://rosegarden.atabook.org/
 
 ![](https://komarev.com/ghpvc/?username=RosesForAmy&color=ff69b4)
 
+Also Check out My Rentry! 
+
+https://rentry.co/enkfc6pe
+
 ![](https://media0.giphy.com/media/h1P26E2bQuE80/giphy.gif?cid=6c09b952owv3w2phg88hi4nta9bndhy6mhnlf34c067wa3qa&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
 
 WAVES!! Hiya! :D
