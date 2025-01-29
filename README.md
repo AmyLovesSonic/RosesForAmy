@@ -28,8 +28,9 @@ I AM A HUGE AMY FAN RAHHHH!!! I LOVE MY SILLY PINK HEDGEHOG!! I KIN HER SM!!
 ![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/87599904-e193-4b75-a519-b5ee2820e856/dg8r3de-3bc1e27d-6cb8-44f1-8031-2e8903c7f75f.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzg3NTk5OTA0LWUxOTMtNGI3NS1hNTE5LWI1ZWUyODIwZTg1NlwvZGc4cjNkZS0zYmMxZTI3ZC02Y2I4LTQ0ZjEtODAzMS0yZTg5MDNjN2Y3NWYuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.j-ItJuRMRfyxNYHZRppSyIrheAFhE4x-kZdDG0Z-PA4)
 Giggles anyways... feel free to follow me! i dont bite <3
 
-![](https://images-wixmp-ed30a86b8c4ca887773594c2.wixmp.com/f/28ac9110-d791-4533-9710-60aac0e77cc7/dfxpj4z-4783e991-3b3b-4fdf-ad84-a0c28f11fa84.gif?token=eyJ0eXAiOiJKV1QiLCJhbGciOiJIUzI1NiJ9.eyJzdWIiOiJ1cm46YXBwOjdlMGQxODg5ODIyNjQzNzNhNWYwZDQxNWVhMGQyNmUwIiwiaXNzIjoidXJuOmFwcDo3ZTBkMTg4OTgyMjY0MzczYTVmMGQ0MTVlYTBkMjZlMCIsIm9iaiI6W1t7InBhdGgiOiJcL2ZcLzI4YWM5MTEwLWQ3OTEtNDUzMy05NzEwLTYwYWFjMGU3N2NjN1wvZGZ4cGo0ei00NzgzZTk5MS0zYjNiLTRmZGYtYWQ4NC1hMGMyOGYxMWZhODQuZ2lmIn1dXSwiYXVkIjpbInVybjpzZXJ2aWNlOmZpbGUuZG93bmxvYWQiXX0.P26yvMol6CVJEz1gO63-YcNsv7H5Vod3KeyCBt35OFI)
+![](https://www.icegif.com/wp-content/uploads/2022/01/icegif-96.gif)
 
-I'm just a silly little gal! 
+I'm just a silly little gal who loves the Sonic Franchise! AS WELL AS SANRIO GIGGLES!! MY MELO IS SO MECORE!!
 
-thanks for reading!
+RAHHHHHHHH!!
+![](https://media4.giphy.com/media/ZYi6VZaUJzrNiGvJ8T/giphy.gif?cid=6c09b952cg3fhypgkbrre6imo83oz8mdg1rsry2kywq84rcs&ep=v1_internal_gif_by_id&rid=giphy.gif&ct=g)
